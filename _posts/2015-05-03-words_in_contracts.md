@@ -1,3 +1,5 @@
+# Words as Contracts
+
 Words are powerful.  I touched upon how they [shape our internal thoughts](http://trippple.click/2015/04/the-double-plus-goodness-of-words/) They also bind our external actions.  Bear with me a bit.  I’ll emphasize the interesting part.  I confess this one is a bit abstract.  It might not be for everyone.  Also some of the connections I try to make may be a bit loose.  Try to humor me.
 
 When I write that words bind us, I expect most connect the phrase with contracts.  All laws from grandiose US Federal law to menial office policies are social contracts.  Religious texts aren’t exactly social contracts, but they direct us all the same.  What surprises me are people that esteem the exact wording of these documents more than their meaning.
